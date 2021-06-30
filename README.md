@@ -3,7 +3,7 @@
 --------
 
 ## Integrantes
-- 
+- Marcelo Juan Surco Salas
 - 
 - 
 
