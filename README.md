@@ -4,7 +4,7 @@
 
 ## Integrantes
 - Marcelo Juan Surco Salas
-- 
+- Miguel Angel Alvarado Ramos
 - 
 
 ----
